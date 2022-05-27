@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on ... Nothing
 - 📫 How to reach me ... Don't
 - 💩 I want to die :) Gaming
+- 💀 It's Morbin Time
+- 🤨 I am Astindev's Puta untill 23:59 of 27th June.
 
 <!---
 Dany-Chan/Dany-Chan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
